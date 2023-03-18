@@ -38,3 +38,5 @@ aprendí y sigo aprendiendo del Camp y mis compañeras. Agradezco la oportunidad
 
 **¡MUCHAS GRACIAS POR TODO!**
 Saludos desde México.
+
+Dejo por aquí el enlace del video de YouTube que se solicitó: [WBDS LA Camp - Final_tgf](https://youtu.be/Vo_Z9r9ABow)
